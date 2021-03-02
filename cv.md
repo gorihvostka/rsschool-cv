@@ -304,4 +304,12 @@ _How to turn a dissatisfied customer into a supporter of the company_ | [IPM Bus
 
 ------
 
- 
+### Passions
+
+I read a lot, especially love 19th-century French literature.\
+I am interested in psychology and mindfulness practices. \
+I like mobile photography and now studying the theory of photography. \
+I am interested in interior design, apartment planning, renovation. \
+Sometimes I draw — in digital or using watercolors. \
+I walk a lot. \
+I love birds, especially magpies and owls. I am engaged in birdwatching from the window of the flat. I can name five types of titmice. I hang the bird feeder in winter. I know how to feed different birds correctly and I preach this knowledge in parks and squares. 
